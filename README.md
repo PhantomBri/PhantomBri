@@ -24,3 +24,5 @@ https://sites.google.com/student.knoxschools.org/phantombri-website/home
 If you have any questions contact me at: brianneag320@gmail.com
 
 Thx Bye! Enjoy my game!
+
+P.S. Please don't sue me I have no idea what i'm doing ;-;
